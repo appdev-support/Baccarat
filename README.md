@@ -10,6 +10,6 @@ This app is mainly for users to experience classic baccarat games, each user can
 
 Technical Support
 
-Email : odc718@163.com
+Email : mjnnke@163.com
 
-TEL : +81 02005347168
+TEL : +1.8048690280
